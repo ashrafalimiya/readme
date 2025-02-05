@@ -32,4 +32,4 @@ Spearheading collaborations for GitHub Campus Program and other tech initiatives
 
 Contact
 
-📧 Email: ashraf@uebschool.edu.np🔗 LinkedIn: https://www.linkedin.com/in/ashraf-ali-miya-b30675298/💻 GitHub: 
+📧 Email: ashraf@uebschool.edu.np🔗 LinkedIn: https://www.linkedin.com/in/ashraf-ali-miya-b30675298/💻 GitHub: https://github.com/ashrafalimiya
